@@ -2,6 +2,12 @@
 
 La creatividad es un factor clave en muchas situaciones que pueden encontrarse en una empresa. Se trata un elemento fundamental que debe estar presente en todo equipo de trabajo.
 
+La creatividad en las empresas es un aspecto clave, sobre todo cuando se están creando importantes cambios y se requiere una mayor competitividad. Hay que saber adaptarse, pero mucho más importante es adaptarse con esta ventaja a mayores, de una forma más flexible e innovadora.
+
+No sólo debe depender de los altos mandos, de hecho es importante poder promoverla también entre los trabajadores, alentarlos y darles la posibilidad de ser creativos y aportar lo máximo de sí a la empresa. Para ello, la empresa debe crear un buen clima laboral, difundir como valor de la empresa el ser creativo, informar y dejar que se ofrezcan sugerencias, reconocer los esfuerzos en este aspecto y, en definitiva, todo lo que ayude a fomentarla entre los trabajadores.
+
+Pero para conseguir que todo esto sea posible en beneficio de la empresa, hay que conseguir se enfoque en los objetivos estratégicos de la empresa, sin buscar “sólo ideas” sino más bien “ideas para cierto objetivo o con ciertas características”. Se buscan nuevas ideas para llegar a los objetivos de la empresa, que creen una ventaja competitiva, por eso es importante la comunicación interna de la empresa como el conocimiento por parte de los trabajadores de los objetivos de la empresa, porque la creatividad no tiene por qué venir sólo desde arriba sino que puede llegar de cualquier parte, y el conocimiento es la mejor manera de llegar a algo.
+
 # Consejos para hacer crecer tu negocio
 
 * Mantener la mente activa: para cultivar el estado mental creativo realizar actividades más complejas o ajenas a sus labores que impliquen un reto.
